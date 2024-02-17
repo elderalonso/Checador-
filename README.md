@@ -1,1 +1,6 @@
 ![1](https://github.com/elderalonso/Checador-/assets/46239290/a281dea5-055d-455c-8498-699841a2acf3)
+![2](https://github.com/elderalonso/Checador-/assets/46239290/0388800e-93c4-4e07-9b20-c77738c3bb8e)
+![4](https://github.com/elderalonso/Checador-/assets/46239290/4eefd120-0b6b-443f-b6d9-c09b59bdbe26)
+![6](https://github.com/elderalonso/Checador-/assets/46239290/9e6f75c3-c12a-476f-8c3b-ac6a04e60b8a)
+![8](https://github.com/elderalonso/Checador-/assets/46239290/d7917d7b-f0c2-4920-bcec-92b45a1e92d4)
+![9](https://github.com/elderalonso/Checador-/assets/46239290/d085111e-be2a-40d0-b03a-91de0cdd9854)
